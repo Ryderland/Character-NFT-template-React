@@ -1,1 +1,1 @@
-# Character-NFT-template-React
+# Throw Away Your Money
